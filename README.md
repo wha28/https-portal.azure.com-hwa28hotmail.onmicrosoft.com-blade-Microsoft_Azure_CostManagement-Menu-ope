@@ -1,0 +1,1 @@
+# https-portal.azure.com-hwa28hotmail.onmicrosoft.com-blade-Microsoft_Azure_CostManagement-Menu-ope
